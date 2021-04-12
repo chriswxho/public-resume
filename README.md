@@ -1,1 +1,0 @@
-# Christopher Ho's resume
